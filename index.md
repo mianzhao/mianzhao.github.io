@@ -1,11 +1,12 @@
-## Welcome Play Spider Solitaire
-🌈Play the 2021 BEST FreeCell Solitaire Fun And Enjoy a Relaxed life NOW!
+Welcome Play Spider Solitaire
 
-🕸 FreeCel is a popular INTERESTING& CLASSIC card game that is ideal for all ages, if you like playing solitaire (Klondike Solitaire either Patience), then our BEST FreeCell will bring you endless fun.
+🌈Play the 2021 BEST Spider Solitaire Fun And Enjoy a Relaxed life NOW!
 
-♠️Now let’s have a look of our Classic FreeCell Free!!!
+🕸 Spider Solitaire is a popular INTERESTING& CLASSIC card game that is ideal for all ages, if you like playing solitaire (Klondike Solitaire either Patience), then our BEST FreeCell will bring you endless fun.
 
-♥️Classic, fun FreeCell Offline Free game FreeCell Classic is a challenging brain game that everyone can play for free! Games That don’t need wi-fi!
+♠️Now let’s have a look of our Classic Spider Solitaire Free!!!
+
+♥️Classic, fun FreeCell Offline Free game Spider Solitaire Classic is a challenging brain game that everyone can play for free! Games That don’t need wi-fi!
 
 ♦️Dedicated Game Design For You All the cards, backgrounds and animations are perfectly designed ,you could choose various difficulties to challenge yourself
 
@@ -55,6 +56,6 @@
 
 🌹Should you play FreeCell? If you like playing classic card games and experience top Spider Solitaire Offline fun, you absolutly will enjoy our exciting CLASSIC Solitaire FREE, also you could try our other free top fun Solitaire , like Freecell, Tripeaks，spider solitaire and so on.
 
-📲DOWNLOAD and TRY our fascinating BEST Classic FreeCell Card Game and enjoy FREESpider Solitaire fun NOW!
+📲DOWNLOAD and TRY our fascinating BEST Classic Spider Solitaire Card Game and enjoy FREESpider Solitaire fun NOW!
 
-📧FreeCell Offline Free CONTACT: magicforjim@gmail.com
+📧Spider Solitaire Offline Free CONTACT: magicforjim@gmail.com
